@@ -1,2 +1,22 @@
-<img width="376" height="288" alt="Zrzut ekranu 2026-07-24 120653" src="https://github.com/user-attachments/assets/a6166085-b017-4fe0-b4b1-cf9876e9af0a" />
-<img width="400" height="288" alt="Zrzut ekranu 2026-08-26 145054" src="https://github.com/user-attachments/assets/ef265ed2-c054-4f87-9314-385059acf758" />
+
+<p align="center">
+<img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/4ca72592-1483-4124-b455-bf9097416567" />
+<img width="540" height="43" alt="image" src="https://github.com/user-attachments/assets/b06a3e39-309b-442f-a407-486aad84ba42" />
+
+</p>
+
+$${\color{purple} art\ by\ H7kovo\ on\  twt!!\ ⮟}$$
+
+<p align="center">
+<img width="480" height="477" alt="image" src="https://github.com/user-attachments/assets/eca3d28c-29cd-4506-bfd1-f91627b99539" />
+</p>
+
+<div align="center">
+ preferably w2i, i have pony town mostly offtab
+
+i'd love to talk with ppl more, but i'm kinda awkward, mostly because english isn't my first language and i can possibly make stupid mistakes lol, so i won't probably start coversations first 😭
+</div>
+
+<div align="center">
+i'm still working on my github readme
+</div>
