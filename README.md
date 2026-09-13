@@ -9,7 +9,7 @@ $${\color{purple}**art\ by\ H7kovo\ on\  twt!!**\ ⮟}$$
 <img width="465" height="462" alt="image" src="https://github.com/user-attachments/assets/eca3d28c-29cd-4506-bfd1-f91627b99539" />
 </p>
 
-<p align="center"><a href="https://everythingmachine.carrd.co" style="margin:auto">CARRD</a> ; <a href="https://everythingmachine.atabook.org" style="margin:auto">ATABOOK</a> ; <a href="znowsiezaczyna.straw.page" style="margin:auto">STRAWPAGE</a>
+<p align="center"><a href="https://everythingmachine.carrd.co" style="margin:auto">CARRD</a> ; <a href="https://everythingmachine.atabook.org" style="margin:auto">ATABOOK</a> ; <a href="https://znowsiezaczyna.straw.page" style="margin:auto">STRAWPAGE</a>
 
 <div align="center">
 Preferably w2i, as I might not see some messages otherwise, I have pony town offtab for a lot of time
