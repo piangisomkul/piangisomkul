@@ -15,7 +15,7 @@ $${\color{purple}**art\ by\ H7kovo\ on\  twt!!**\ ⮟}$$
 Preferably w2i, as I might not see some messages otherwise, I have pony town offtab for a lot of time
 
 I might be awkward at first, english isn't my first language and I'll probably do some stupid mistakes (and get stressed over it lmao).
-There's a very small chance I'll start convos first, even if I'd love to talk with you 😭
+There's a very big chance I won't start convos first, even if I'd love to talk with you 😭
 </div>
 
 <p align="center">
