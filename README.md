@@ -11,7 +11,6 @@ $${\color{purple}**art\ by\ H7kovo\ on\  twt!!**\ ⮟}$$
 
 <p align="center"><a href="https://everythingmachine.carrd.co" style="margin:auto">CARRD</a> ; <a href="https://everythingmachine.atabook.org" style="margin:auto">ATABOOK</a> ; <a href="znowsiezaczyna.straw.page" style="margin:auto">STRAWPAGE</a>
 
-$${\color{purple}YO!!}$$
 <div align="center">
 Preferably w2i, as I might not see some messages otherwise, I have pony town offtab for a lot of time
 
