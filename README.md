@@ -10,7 +10,7 @@ $${\color{purple} art\ by\ H7kovo\ on\  twt!!\ ⮟}$$
 <img width="480" height="477" alt="image" src="https://github.com/user-attachments/assets/eca3d28c-29cd-4506-bfd1-f91627b99539" />
 </p>
 
-<p align="center"><a href="https://everythingmachine.carrd.co" style="margin:auto">CARRD</a> ; <a href="https://everythingmachine.atabook.orh style="margin:auto">ATABOOK</a>
+<p align="center"><a href="https://everythingmachine.carrd.co" style="margin:auto">CARRD</a> ; <a href="https://everythingmachine.atabook.org style="margin:auto">ATABOOK</a>
 
 <div align="center">
  preferably w2i, i have pony town mostly offtab
