@@ -1,7 +1,6 @@
 
 <p align="center">
 <img width="540" height="41" alt="image" src="https://github.com/user-attachments/assets/4ca72592-1483-4124-b455-bf9097416567" />
-<img width="540" height="43" alt="image" src="https://github.com/user-attachments/assets/b06a3e39-309b-442f-a407-486aad84ba42" />
 </p>
 
 $${\color{purple} art\ by\ H7kovo\ on\  twt!!\ ⮟}$$
@@ -13,9 +12,10 @@ $${\color{purple} art\ by\ H7kovo\ on\  twt!!\ ⮟}$$
 <p align="center"><a href="https://everythingmachine.carrd.co" style="margin:auto">CARRD</a> ; <a href="https://everythingmachine.atabook.org" style="margin:auto">ATABOOK</a>
 
 <div align="center">
- preferably w2i, i have pony town mostly offtab
+Preferably w2i, as I might not see some messages otherwise, I have pony town offtab for a lot of time
 
-i'd love to talk with ppl more, but i'm kinda awkward, mostly because english isn't my first language and i can possibly make stupid mistakes lol, so i won't probably start coversations first 😭
+I might be awkward at first, english isn't my first language and I'll probably do some stupid mistakes (and get stressed over it lmao).
+There's a very small chance I'll start convos first, even if I'd love to talk with you 😭
 </div>
 
 <div align="center">
@@ -24,4 +24,8 @@ i'm still working on my github readme
 
 <p align="center">
 <img width="18" height="18" alt="image" src="https://github.com/user-attachments/assets/4a21f4e6-e1c5-4f8e-bbb7-bd0ac29bcc7e" />
+</p>
+
+<p align="center">
+<img width="540" height="43" alt="image" src="https://github.com/user-attachments/assets/b06a3e39-309b-442f-a407-486aad84ba42" />
 </p>
